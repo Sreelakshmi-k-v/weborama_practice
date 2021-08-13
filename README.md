@@ -1,1 +1,1 @@
-weborama daily updtaes
+weborama daily updates
